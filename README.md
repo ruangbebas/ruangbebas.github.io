@@ -1,1 +1,1 @@
-# Kebebasan Berpikir Tanpa Merugikan Orang Lain Adalah Hak Asasi Manusia
+# Kebebasan Berpikir Yang Mulia
